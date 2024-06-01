@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... any product to make that would get me credit and project that are awfully gud also innovative if you don't to give credit then be ready to load your cash guns
 - 📫 How to reach me ... 120094@dpsgm@dpsg.org
 - 😄 Pronouns: ...he/him/GOD
-- ⚡ Fun fact: ... i am a roaster and an law enthusiast and more talented/creative/innovative than your existance combined in all realms
+- ⚡ Fun fact: ... i am a roaster, an law & chemistry enthusiast, student and more talented/creative/innovative than your existance combined in all realms
 
 <!---
 PatregDev/PatregDev is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
